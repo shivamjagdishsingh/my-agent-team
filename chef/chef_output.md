@@ -1,0 +1,1 @@
+I would like to order the "Spiced Lentil and Vegetable Biryani". It seems to be a spicy Indian dish that caters to my preference. I look forward to tasting this dish and providing my feedback.
